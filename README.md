@@ -16,6 +16,6 @@ On this website, you'll discover:
 
 I'm excited to have you here, and I hope you find something that interests you. Explore, learn, and enjoy your visit!
 
-If you have any questions, suggestions, or just want to say hello, please don't hesitate to [contact me](yezc22@mails.tsinghua.edu.cn). I'd love to hear from you!
+If you have any questions, suggestions, or just want to say hello, please don't hesitate to contact me by yezc22@mails.tsinghua.edu.cn. I'd love to hear from you!
 
 Thanks for stopping by!
