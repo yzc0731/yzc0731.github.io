@@ -1,2 +1,2 @@
 # Zhangchen Ye
-Hi! I am a third-year undergraduate student at Yao Class, Tsinghua Univeristy.
+Hi! I am an undergraduate student at Yao Class, Institute for Interdisciplinary Information Sciences (IIIS), Tsinghua Univeristy.
